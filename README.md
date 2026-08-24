@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **C,C++,JAVA,REACT,HTML,CSS,JAVASCRIPT,CYBERSECURITY...**
 
-- 📫 How to reach me **bala1rbm374@gmail.com**
+- 📫 How to reach me **bala.ofcl2@gmail.com**
 
 <h3 align="center">Connect with me:</h3>
 <p align="center">
